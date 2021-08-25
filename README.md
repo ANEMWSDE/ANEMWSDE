@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ANEMWSDE I LIKE COOKIE
 - 👀 I’m interested in LEARNING
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning math
 - 💞️ I’m looking to collaborate on sunday
 - 📫 How to reach me?
 
